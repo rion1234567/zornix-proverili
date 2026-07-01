@@ -4,7 +4,7 @@
 
 I am a student majoring in Web Design, with a solid foundation in the arts. My goal is to become an **Infrastructure Engineer** who leverages design thinking to build robust and user-centric systems.
 
----
+ンk；：l、：＠m；＠m」＠mんp：ンb；んｍ
 
 ### 🎨 Background & Journey
 * **Artistic Roots:** 6 years of experience in Art Clubs (Middle & High School). Specialized in Art courses.
